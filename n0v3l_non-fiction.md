@@ -1,8 +1,8 @@
 # N0V3L - NON-FICTION
 
 ## Tracklist 
-    1. UNTOUCHABLE
-    2. GROUP DISEASE
+    1. [UNTOUCHABLE](#untouchable)
+    2. [GROUP DISEASE](#group-disease)
     3. EN MASSE
     4. FALLING IN LINE
     5. APATH
@@ -167,12 +167,12 @@ Look back, seen enough
 
 ```
 Pick a name
-Jokes aside
+Choose a side
 False truth youth
 Fall in line
 
 Grassroots might
-Volatize / Form the ties
+Volatize / {Form the ties}
 Send it back
 Nullify
 
