@@ -51,11 +51,11 @@ The loudest horses, preach destruction
 Speak of choices, offer consumption
 
 A group disease, to ease the ’spense, of make believe,
-No cross to bear, repress the need, a pree to prayer
+No cross to bear, repress the need, agree to prayer
 We shed our mirrors, no faith to spend
 
 A group disease, to ease the ’spense, of make believe,
-No cross to bear, repress the need, a pree to prayer
+No cross to bear, repress the need, agree to prayer
 We shed our mirrors, no faith to spend
 ```
 
