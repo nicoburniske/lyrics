@@ -19,9 +19,10 @@ The magicness mistrust, full of reservations
 Up to the dizzin, fill with corrosion, these pushers, go see if they're just there for emotion
 Anxious and fearful, _ reversal
 A _ _ , and without rehearsal 
+
 Course it begs the question
 Connecting lines with which you live for to die for
-I'm blessed with _ it through, your self is tolling, consume over and over
+I'm blessed with _ it through, your self is trolling, consume over and over
 ```
 
 2. ## GROUP DISEASE
@@ -48,6 +49,27 @@ We shed our mirrors, no faith to spend
 
 3. ## EN MASSE
 
+```
+Climate of fear, is self-distrust in my neighbors 
+Elected officials keep on losing the papers
+Straining the seams of a political garment 
+Colors beware, can turn all bans to a target
+
+Free? Freedom is not free
+Right and left don't see eye to eye
+A forced truth that look right
+Few reasons to agree, less even to be empathetic, a tolerant skeptic
+
+Freeing on mass-manipulation is rising
+With internet arms, politics on the rising
+Turn off the left, right, left sniffed on the pavement
+middle state homes, start making these in the basement
+
+Free? Freedom is not free
+Right and left don't see eye to eye
+A forced truth that look right
+Few reasons to agree, less even to be empathetic, a tolerant skeptic
+```
 4. ## FALLING IN LINE
 
 ```
@@ -130,6 +152,8 @@ Look back, seen enough
 ```
 
 6. ## INTEREST FREE
+
+
 
 7. ## STRANGER
 
