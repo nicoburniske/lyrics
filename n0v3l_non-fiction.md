@@ -1,17 +1,18 @@
 # N0V3L - NON-FICTION
 
 ## Tracklist 
-    1. [UNTOUCHABLE](#untouchable)
-    2. [GROUP DISEASE](#group-disease)
-    3. EN MASSE
-    4. FALLING IN LINE
-    5. APATH
-    6. INTEREST FREE
-    7. STRANGER
-    8. VIOLENT & PARANOID
-    9. PUSHERS
-    10. STATUS
-    11. NOTICE OF FORECLOSURE
+
+1. [UNTOUCHABLE](#untouchable)
+2. [GROUP DISEASE](#group-disease)
+3. [EN MASSE](#en-masse)
+4. [FALLING IN LINE](#falling-in-line)
+5. [APATH](#apath)
+6. [INTEREST FREE](#interest-free)
+7. [STRANGER](#stranger)
+8. [VIOLENT & PARANOID](#violent-&-paranoid)
+9. [PUSHERS](#pushers)
+10. [STATUS](#status)
+11. [NOTICE OF FORECLOSURE](#notice-of-foreclosure)
 
 1. ## UNTOUCHABLE 
 
