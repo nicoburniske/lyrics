@@ -153,7 +153,40 @@ Look back, seen enough
 
 6. ## INTEREST FREE
 
+```
+Pick a name
+Jokes aside
+False truth youth
+Fall in line
 
+Grassroots might
+Volatize / Form the ties
+Send it back
+Nullify
+
+Activist
+Identity
+Buy it now!
+Interest free
+
+Feedback
+Looping
+Tough play
+Losing
+Power
+Silence
+Expected
+Rooming
+
+Put precious movement
+Words gone division
+With the exploited
+To count the pleasure
+A cult in helping
+Fool the consumer
+
+?
+```
 
 7. ## STRANGER
 
