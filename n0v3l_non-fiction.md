@@ -1,8 +1,21 @@
 # N0V3L - NON-FICTION
 
-1. UNTOUCHABLE 
+## Tracklist 
+    1. UNTOUCHABLE
+    2. GROUP DISEASE
+    3. EN MASSE
+    4. FALLING IN LINE
+    5. APATH
+    6. INTEREST FREE
+    7. STRANGER
+    8. VIOLENT & PARANOID
+    9. PUSHERS
+    10. STATUS
+    11. NOTICE OF FORECLOSURE
 
-```
+1. ## UNTOUCHABLE 
+
+``` 
 Kneel at the alter, expect wine from water
 Why can't you snap out, nothing you care 'bout
 The pills are a cop out, that you can't live without
@@ -13,7 +26,6 @@ A mess is rolling it through, your self is trolling, consume over and over
 
 Preaching of purpose, pattern, direction
 Judgement of self, hunting for good intention
-
 Destruction of progress, like self-immolation 
 The magicness mistrust, full of reservations
 Up to the dizzin, fill with corrosion, these pushers, go see if they're just there for emotion
@@ -60,10 +72,10 @@ Right and left don't see eye to eye
 A forced truth that look right
 Few reasons to agree, less even to be empathetic, a tolerant skeptic
 
-Freeing on mass-manipulation is rising
+Freeing/? on mass-manipulation is rising
 With internet arms, politics on the rising
 Turn off the left, right, left sniffed on the pavement
-middle state homes, start making these in the basement
+Middle state homes, start making these in the basement
 
 Free? Freedom is not free
 Right and left don't see eye to eye
@@ -178,10 +190,11 @@ Silence
 Expected
 Ruining
 
-Put precious movement
+Put precious movements
 Words gone division
 With the exploited
 To count the pleasure
+Involved in helping
 Fool the consumer
 Mass production
 All for the loser
@@ -189,12 +202,140 @@ All for the loser
 
 7. ## STRANGER
 
+```
+Enter my sea
+Blocked by the danger, does sheepishly weep
+Repeat this entire phrase
+Singing to me, like you only know my name
+Lost in purpose, barely scratching the surface
+
+Feeling of watching the world through glass
+Friendships like tokens, moments don't last
+Consumed by the past, obsessed with the future
+Nurture a stranger, stranger a friend
+
+Feeling of watching the world through glass
+Friendships like tokens, moments don't last
+Consumed by the past, obsessed with the future
+Nurture a stranger, stranger a friend
+
+Feeling of watching the world through glass
+Friendships like tokens, moments don't last
+Consumed by the past, obsessed with the future
+Nurture a stranger, stranger a friend
+
+Enter my sea
+Blocked by the danger, does sheepishly weep
+Repeat this entire phrase
+Singing to me, like you only know my name
+Lost in purpose, barely scratching the surface
+```
+
 8. ## VIOLENT & PARANOID
+
+```
+Violent and paranoid
+Pacifist but overjoyed
+Violent and glorified
+Silent voices terrified
+
+New faced to modernize
+Force the rest to equalize
+Burn too quick, intensified
+Burn your pill of cyanide
+
+Lose slip and undignify
+Wake my hope is justified
+Horrified, nation-wide 
+Add intention amplify 
+
+Violent and paranoid
+????
+Violent and paranoid
+Violent and paranoid
+```
 
 9. ## PUSHERS
 
+```
+A travesty, normalized
+No amnesty, desensitized
+Indecent lovers, ? 
+Under the cover of the medical system
+Plant seeds of a good taste of feeling
+Look no further than the bloodwork on the ceiling
+
+???
+
+```
+
 10. ## STATUS
 
+```
+Status
+Focal 
+Malice
+Social
+Value
+Abstract
+Judgement
+Outcast 
+
+A wrath of vengence, reach out and grab it
+And line those pockets, attention addict
+Idolize image, mirage and mimic
+A crooked angle, no low limit
+
+Status
+Focal 
+Malice
+Social
+Value
+Abstract
+Judgement
+Outcast  
+
+Climb the ladder of conversation
+Think of the matter of no relation
+A shared delusion, behind a vail
+Slide institution off the/a rail
+
+On and off the pedestal
+That its time to ? 
+In one ear and out the other
+Skip the contents of the cover
+
+Status
+Focal 
+Malice
+Social
+Value
+Abstract
+Judgement
+Outcast 
+
+Status
+Focal 
+Malice
+Social
+Value
+Abstract
+Judgement
+Outcast 
+
+Take from perfection, the mass attention
+Have those affected, no apprehension
+A scene to gaze, a part to play
+Make life a stage, pay to play
+
+On and off the pedestal
+Silence lies ?  
+Cynical and sinister
+Play them to a ?
+In one ear and out the other
+Skip the contents of the cover
+Higher up, a fabrication, agents of alien nation
+```
 11. ## NOTICE OF FORECLOSURE
 
 ```
