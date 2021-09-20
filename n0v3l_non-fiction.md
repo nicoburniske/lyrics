@@ -3,7 +3,25 @@
 1. UNTOUCHABLE 
 
 ```
+Kneel at the alter, expect wine from water
+Why can't you snap out, nothing you care 'bout
+The pills are a cop out, that you can't live without
 
+You're good to begin now you, you close your eyes and now the tension is tactile
+And lose control at times you, you're fear's still rolling, you might see you as we 
+A mess is rolling it through, your self is trolling, consume over and over
+
+Preaching of purpose, pattern, direction
+Judgement of self, hunting for good intention
+
+Destruction of progress, like self-immolation 
+The magicness mistrust, full of reservations
+Up to the dizzin, fill with corrosion, these pushers, go see if they're just there for emotion
+Anxious and fearful, _ reversal
+A _ _ , and without rehearsal 
+Course it begs the question
+Connecting lines with which you live for to die for
+I'm blessed with _ it through, your self is tolling, consume over and over
 ```
 
 2. ## GROUP DISEASE
@@ -26,7 +44,6 @@ We shed our mirrors, no faith to spend
 A group disease, to ease the ’spense, of make believe,
 No cross to bear, repress the need, a pree to prayer
 We shed our mirrors, no faith to spend
-
 ```
 
 3. ## EN MASSE
@@ -75,33 +92,31 @@ No numbing the mind, Is he falling in line
 Is he falling in line, slowly losing sight
 Barely dream at night
 No numbing the mind, is he falling in line?
-
 ```
 
 5. ## APATH
 
 ```
-Living in lots fear, living in a bubble
 Living in our heads, as structures turn to rubble
 Fear in our heart, terror in the street
 Agendas in the dark, force us to compete
-Hiding from the truth, locking out the horror
-Tuning in, tuning out, message out of order
+Hiding from the truth, blocking out the horror
+Tuning in, tuning out, message “Out of Order”
 Dying fast for money, chalk it up as freedom
 Dish it out for nothing, conjure up a reason
 Bury yourself in layers of apathy
-Visit yourself with objecting silently
-The big befriend the righteous simulation
+Busy yourself with objecting silently
+Repeat refrain of righteous indignation
 Breed extremes of thought in isolation
 
-Would you die for freedom? Can you repeat the choices? 
+Would you die for freedom? Can you repeat the choices?
 Still searching for a reason, in a crowd of preaching voices
-What’s the cost of living? Can you repeat the question? 
+What’s the cost of living? Can you repeat the question?
 Still feel like something’s missing, beneath one way reflection
 
-Would you die for freedom? Can you repeat the choices? 
+Would you die for freedom? Can you repeat the choices?
 Still searching for a reason, in a crowd of preaching voices
-What’s the cost of living? Can you repeat the question? 
+What’s the cost of living? Can you repeat the question?
 Still feel like something’s missing, beneath one way reflection
 
 Construct, tear it down
