@@ -176,16 +176,15 @@ Losing
 Power
 Silence
 Expected
-Rooming
+Ruining
 
 Put precious movement
 Words gone division
 With the exploited
 To count the pleasure
-A cult in helping
 Fool the consumer
-
-?
+Mass production
+All for the loser
 ```
 
 7. ## STRANGER
