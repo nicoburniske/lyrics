@@ -132,6 +132,7 @@ No numbing the mind, is he falling in line?
 5. ## APATH
 
 ```
+Living in lots fear, living in a bubble
 Living in our heads, as structures turn to rubble
 Fear in our heart, terror in the street
 Agendas in the dark, force us to compete
@@ -169,7 +170,7 @@ Look back, seen enough
 ```
 Pick a name
 Choose a side
-False truth youth
+{False truth}/foster youth
 Fall in line
 
 Grassroots might
